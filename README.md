@@ -32,8 +32,9 @@ When I was in 8th grade, I participated in *CJSF (California Junior Scholarship 
 
 Here is a Spotify playlist of songs that I listen to as of now:
 
- https://open.spotify.com/playlist/09B6Diq74R8NPLw57wRBah?si=73VGOapwQvmSI7EL9OGZtw&utm_source=copy-link&pt=f337c360cc96a78de890eb6bd2ab82f8&pi=PV2xZm4dQL6Zz
+ [My Favorite Music](https://open.spotify.com/playlist/09B6Diq74R8NPLw57wRBah?si=73VGOapwQvmSI7EL9OGZtw&utm_source=copy-link&pt=f337c360cc96a78de890eb6bd2ab82f8&pi=PV2xZm4dQL6Zz)
 
-And here is my favorite things converted into a Canva collage:
+And here is some of my favorite things converted into a Canva collage:
 
-https://canva.link/lvkqvom9l9h2zox
+![Favorite Things](Photo.png)
+=======
